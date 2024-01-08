@@ -8,3 +8,6 @@ e.g. Windows, Microsoft Office, Adobe, Spotify, Netflix
 - https://www.instagram.com/warecrosoft.co
 - https://www.instagram.com/qizi.storebn
 - https://www.instagram.com/digitalsoftware.bn
+- https://www.instagram.com/recharge.pc
+- https://www.instagram.com/techguys.bn
+- https://www.instagram.com/matcha.spot
