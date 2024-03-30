@@ -15,6 +15,13 @@
 
 ![](air-purifiers/amway-1.jpeg)
 
+## Audomarc
+- http://audiomarc.com.bn/
+- https://www.instagram.com/p/C47uihmhiDK/
+- https://audiomarc.com.bn/category/air-purifiers
+
+![](air-purifiers/audiomarc-1.jpeg)
+
 ## City Mobile
 - https://www.instagram.com/citymobile_brunei/
 - https://www.facebook.com/CityMobileBrunei/
