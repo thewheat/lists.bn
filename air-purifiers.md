@@ -42,6 +42,7 @@
 - https://www.instagram.com/conceptscomputer_bn/
 
 ![](air-purifiers/concepts-1.jpg)
+![](air-purifiers/concepts-2.jpg)
 
 ## Connex
 - https://www.connex.com.bn/
