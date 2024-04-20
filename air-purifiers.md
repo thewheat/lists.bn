@@ -53,6 +53,7 @@
 
 ## Cuckoo
 - https://linktr.ee/cuckoobrunei
+- https://cuckoobrunei.com/products/healthy-appliances/air-purifier/
 
 ![](air-purifiers/cuckoo-1.jpg)
 
@@ -64,6 +65,7 @@
 ![](air-purifiers/digitalworld-2.jpg)
 ![](air-purifiers/digitalworld-3.jpg)
 ![](air-purifiers/digitalworld-4.jpg)
+![](air-purifiers/digitalworld-5.jpg)
 
 ## Intracorp
 - https://www.intracorpbrunei.com
@@ -73,16 +75,17 @@
 
 ![](air-purifiers/intracorp-1.jpg)
 
-## Maribali
-- https://maribali.com.bn/index.php?search_performed=Y&q=air%20purifier&dispatch=products.search
-
-![](air-purifiers/maribali-1.jpg)
-
 ## Little Bean
 - https://linktr.ee/littlebean.bn
 - https://www.instagram.com/bn.littlebean/
 
 ![](air-purifiers/littlebean-1.jpg)
+![](air-purifiers/littlebean-2.jpg)
+
+## Maribali
+- https://maribali.com.bn/index.php?search_performed=Y&q=air%20purifier&dispatch=products.search
+
+![](air-purifiers/maribali-1.jpg)
 
 ## Netcom
 - https://www.netcombrunei.com/
