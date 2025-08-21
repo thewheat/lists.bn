@@ -3,19 +3,18 @@
 https://www.coworker.com/brunei/bandar-seri-begawan
 
 
-## TBD
-- https://www.instagram.com/p/C6NWzIjhPro/
-- Hot desk / Private Office
+## Ruang Rizq
+- https://www.ruangrizq.com
+- https://www.instagram.com/ruangrizq/
+- Hot desk / Dedicated Desk / Private Office
 - Locations:
-  - Serusop
+  - Gadong Properties
 
 ## Regus
 - https://www.regus.com/en-us/brunei
 - Hot desk / Dedicated Desk / Private Office
 - Locations:
   - PGGMB Building, Bandar
-  - Gadong Properties
-
 
 ## Co.Circle & Offices in a Garden
 
