@@ -14,3 +14,9 @@
 ## Tiga-D Lab
 - https://www.instagram.com/tigadlabbrunei/
 - Latifuddin Complex, Jalan Tungku Link
+
+## Utamatech
+
+- https://linktr.ee/utamatech
+- https://www.instagram.com/utamatech/
+- Airport Mall
